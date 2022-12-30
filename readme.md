@@ -1,1 +1,1 @@
-Many thanks to the college administration for their appreciation.
+Many thanks to the administration staff of Baba Banda Singh Bahadur Engineering College for their appreciation.
