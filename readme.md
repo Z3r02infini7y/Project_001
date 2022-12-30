@@ -1,1 +1,1 @@
-## Thanks to the college administration for the appreciation letter.
+Many thanks to the college administration for their appreciation letter.
